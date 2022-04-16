@@ -1,0 +1,1 @@
+THis is licensed. PLEASE dont take my code. Ive worked hard on it. Respect the way of the programmer... Thanks! Love you!
